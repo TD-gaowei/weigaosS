@@ -1,1 +1,1 @@
-## Hey, Gao Wei here! :wave:
+Hey, Gao Wei here! :wave:
